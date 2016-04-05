@@ -1,5 +1,5 @@
-# Maclellan Foundation China Marketplace Research Study
-_______
+# MF China Marketplace Research Study
+
 Thank you for showing interest in the research paper.
 For security issue, please **DO NOT** share this paper without admin's permission.
 
